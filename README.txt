@@ -1,1 +1,1 @@
-Jay Schwartz Personal Portfolio Site
+Jay Schwartz Portfolio Site
